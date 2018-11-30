@@ -1,2 +1,2 @@
 # Does Inflation Targeting Matter?
-}Laurence Ball and Niamh Sheridan, 2014
+Laurence Ball and Niamh Sheridan, 2014
